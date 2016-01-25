@@ -1,1 +1,0 @@
-Zach Hart. My favorite baseball team is the Chicago Cubs.
